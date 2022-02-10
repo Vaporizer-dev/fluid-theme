@@ -2,4 +2,4 @@ High quality photos on my [github page](https://github.com/Vaporizer-dev/fluid-t
 
 Follow me on [twitter](https://twitter.com/_Vaporizer) to get notified for new themes.
 
-![fluid](https://user-images.githubusercontent.com/14194924/153379017-b0051f83-3ed2-449e-be3c-2be7c9d9bd4d.png)
+![Screen Shot 1400-11-21 at 13 15 27](https://user-images.githubusercontent.com/14194924/153380890-3cf3957f-90d0-47c4-91b1-b517bf97ecd4.png)
